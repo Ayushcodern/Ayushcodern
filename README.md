@@ -1,6 +1,6 @@
 
 # 💫 About Me:
-im currently working on<br>
+There we go!!<br>
 
 
 ## 🌐 Socials:
